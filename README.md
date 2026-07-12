@@ -19,3 +19,7 @@ https://www.youtube.com/watch?v=GaoKklJeW2Q&list=PLXeH8d-qIAxA&index=38
 # Fool me once... Fool me twice...
 
 https://www.youtube.com/watch?v=wPlOYPGMRws&list=PLXeH8d-qIAxA&index=37
+
+# My Ass IS BURNING!
+
+https://www.youtube.com/watch?v=cUuvvHsxpD4&list=PLXeH8d-qIAxA&index=1
