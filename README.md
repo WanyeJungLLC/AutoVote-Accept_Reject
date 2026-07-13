@@ -1,9 +1,8 @@
 # AutoVote-Reject Document #1
 B-Cuz I hate the IC
 
-Fuck DFINITY 
 
-# Cum and get it gurll
+# YES
 
 https://youtube.com/playlist?list=PLXeH8d-qIAxA&si=ydS50AY6gBC_SwRf
 
@@ -14,14 +13,14 @@ https://youtube.com/playlist?list=PLXeH8d-qIAxA&si=ydS50AY6gBC_SwRf
 https://www.youtube.com/watch?v=0PCbaGipDSU&list=PLWKSL_Kt1RGQ&index=3
 
 
-# OldCrustyBalls 
+# Stuck In My Zipper Agaian
 
 https://www.youtube.com/watch?v=GaoKklJeW2Q&list=PLXeH8d-qIAxA&index=38
 
-# Fool me once... Fool me twice...
+# Fool me once shame on you... Fool me twice shame on glue...
 
 https://www.youtube.com/watch?v=wPlOYPGMRws&list=PLXeH8d-qIAxA&index=37
 
-# My Ass IS BURNING!
+# That Hot-Sauce!
 
 https://www.youtube.com/watch?v=cUuvvHsxpD4&list=PLXeH8d-qIAxA&index=1
