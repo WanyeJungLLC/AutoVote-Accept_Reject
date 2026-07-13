@@ -1,4 +1,4 @@
-# AutoVote-Reject
+# AutoVote-Reject Document #1
 B-Cuz I hate the IC
 
 Fuck DFINITY 
