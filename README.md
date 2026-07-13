@@ -3,7 +3,9 @@ B-Cuz I hate the IC
 
 Fuck DFINITY 
 
+# Cum and get it gurll
 
+https://youtube.com/playlist?list=PLXeH8d-qIAxA&si=ydS50AY6gBC_SwRf
 
 
 
