@@ -1,6 +1,9 @@
 # AutoVote-Reject Document #1
 
-https://app.base44.com/apps/6a541f5e13c51a470ec8f9f8/editor/preview
+
+# Link for Base44 mockup (spent 5 seconds don't use it verbatim) 
+
+https://neuron-pilot-flow.base44.app
 
 
 
