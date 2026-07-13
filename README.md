@@ -4,25 +4,14 @@ https://app.base44.com/apps/6a541f5e13c51a470ec8f9f8/editor/preview
 
 
 
-# YES
+# This is a more, "appopriate", video. 
 
-https://youtube.com/playlist?list=PLXeH8d-qIAxA&si=ydS50AY6gBC_SwRf
+# Safe for everyone & no angsty deflection of rage outwards. 
 
+# Just a guy speaking what my soul feels, and yet, my physical body cannot express (yet). 
 
+# You see... I have work to do. Work that cannot be done, "On-Chain". 
 
-# Duhhh
+https://youtu.be/Aekb3ppKm5w
 
-https://www.youtube.com/watch?v=0PCbaGipDSU&list=PLWKSL_Kt1RGQ&index=3
-
-
-# Stuck In My Zipper Agaian
-
-https://www.youtube.com/watch?v=GaoKklJeW2Q&list=PLXeH8d-qIAxA&index=38
-
-# Fool me once shame on you... Fool me twice shame on glue...
-
-https://www.youtube.com/watch?v=wPlOYPGMRws&list=PLXeH8d-qIAxA&index=37
-
-# That Hot-Sauce!
-
-https://www.youtube.com/watch?v=cUuvvHsxpD4&list=PLXeH8d-qIAxA&index=1
+## Thank you.
